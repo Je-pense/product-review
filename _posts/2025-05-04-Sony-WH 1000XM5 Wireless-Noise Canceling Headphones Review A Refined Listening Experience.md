@@ -10,7 +10,7 @@ keywords:
 
 ![Sony WH-1000XM5](https://m.media-amazon.com/images/I/81UmmzjGcYL._AC_SL1500_.jpg)
 
-[Sony’s WH-1000XM](https://amzn.to/4m2uNKR) series has long dominated the premium headphone space. From industry-leading noise cancellation to plush comfort and refined sound, each iteration raised the bar. Now, with the release of the Sony WH-1000XM5, the company takes a bold step by completely redesigning its flagship headphones — both inside and out.
+[Sony's WH-1000XM](https://amzn.to/4m2uNKR target="_blank") series has long dominated the premium headphone space. From industry-leading noise cancellation to plush comfort and refined sound, each iteration raised the bar. Now, with the release of the Sony WH-1000XM5, the company takes a bold step by completely redesigning its flagship headphones — both inside and out.
 
 But does this new design, coupled with smarter tech and better performance, warrant the higher price tag? I spent several weeks with the XM5 to find out — and here’s everything you need to know.
 

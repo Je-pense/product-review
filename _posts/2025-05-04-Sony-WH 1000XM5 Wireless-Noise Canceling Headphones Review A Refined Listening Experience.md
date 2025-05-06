@@ -117,10 +117,11 @@ If you’re in the market for premium wireless headphones that deliver in nearly
 
 ### Relevant Amazon Products Links:
 
-https://amzn.to/4m2uNKR
 
-https://amzn.to/44Tqifl
+[https://amzn.to/4m2uNKR](https://amzn.to/4m2uNKR)
 
-https://amzn.to/4kawlAN
+[https://amzn.to/44Tqifl](https://amzn.to/44Tqifl)
 
-https://amzn.to/4jYQBVO
+[https://amzn.to/4kawlAN](https://amzn.to/4kawlAN)
+
+[https://amzn.to/4jYQBVO](https://amzn.to/4jYQBVO)
